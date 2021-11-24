@@ -1,6 +1,6 @@
 # Cottage-Cheese-Dumplings
 
-These tasty little dumplings are very easy to make. 
+These tasty dumplings are very easy to make. 
 
 
  
